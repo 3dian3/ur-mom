@@ -1,4 +1,4 @@
 # ur-mom
-whats wrong link^^ {urmom is the link}
+whats wrong 
 
 ur stuck in my head 
